@@ -2,7 +2,7 @@
 - 👀 I’m interested in ARTS ...
 - 🌱 I’m currently learning how to program a virtual space that recreate a travel around the universe that i create  ...
 - 💞️ I’m looking to collaborate on .the develop of virtual space and manifestation of arts and creation..
-- 📫 How to reach me ... this are my insta: @ijhyy7i @xykz.7 @miik3l4
+- 📫 How to reach me ... this are my insta: @miik3l4
 
 
 
